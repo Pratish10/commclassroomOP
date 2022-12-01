@@ -3,4 +3,4 @@
 - Kunal Kushwaha says that this community is amazing.
 - More power to kunal. love the work which your are doing for the community.
 - Anirudh Sharma finds the Community Classroom initiative really great!
-- Pratish finds this community very helpful and looking for to learn more and gain alot of skills!
+- Pratish finds this community very helpful and looking forward to learn more and gain alot of skills!
